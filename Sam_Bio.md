@@ -1,4 +1,4 @@
 - 👋 Hi, I’m @sammurray951
 - 👀 I’m interested in Earth Science and Finances
-- 💞️ I’m looking to collaborate on Investing Algorithms!
+- 💞️ I’m looking to collaborate on Investing Projects
 - 📫 How to reach me - sammurray951@gmail.com
